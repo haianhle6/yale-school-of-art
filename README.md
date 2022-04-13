@@ -1,1 +1,0 @@
-# yale-school-of-art
